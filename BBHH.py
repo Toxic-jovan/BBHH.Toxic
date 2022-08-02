@@ -418,7 +418,7 @@ __________________****______________________
  
   Youtube   :  Update Tricks 🎭
 
-  Facebook : i.love.allah.its.jova.vau
+  Facebook : i.love.allah.its.jovan.vau
 
   MESSAGE : DUWA KAR DEN GF MIL JA 😂
 __________________****______________________\033[1;37m""")
